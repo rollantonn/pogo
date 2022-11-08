@@ -14,4 +14,6 @@ Here's stuff I like:
 
 I've got two younger softwares, they're pretty cool but I'm cooler. 
 
-One day I really want to go to do a karaoke. 
+One day I really want to go do a karaoke. 
+
+MY biggest fear is when you swim in the sea and can't see shit around you.
